@@ -1,4 +1,6 @@
+Introducing  Myself🙋🏻‍♀️
 <img width="1983" height="793" alt="ChatGPT Image Jun 3, 2026, 11_10_19 AM" src="https://github.com/user-attachments/assets/a0817341-3077-4d44-ba3f-89ffee882477" />
+
 # 👋 Hi, I'm Roshni Makwana
 
 ### Data Scientist • Data Analyst 
